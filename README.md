@@ -1,1 +1,1 @@
-Fundamental Wireless Research (FWR)
+Fundamental Wireless Research (FWR) Lab
